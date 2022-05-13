@@ -1,6 +1,6 @@
 ### Bonjour ! 👋
 
-> ***- 🔭 I’m currently working on Surgiland / MILS***
+> ***- 🔭 I’m currently working on Surgiland***
 
 > ***- 🌱 I’m currently learning LUA***
 
