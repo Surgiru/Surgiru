@@ -11,8 +11,8 @@
 > ***- 📫 How to reach me : [Discord](https://discord.gg/nmDJSm6KVA)***
 
 > ***- 😄 Pronouns He/Him***
-ㅤ
-ㅤ
+
+
 > ***[SurgTV](https://discord.gg/nmDJSm6KVA)***
 <!--
 **Surgiru/Surgiru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
