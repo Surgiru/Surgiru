@@ -15,7 +15,7 @@
 > ***- ⚡ Fun fact: I hate love***
 
 ```css
-[Teko's Dev : https://discord.gg/5MFWHsYdUz]
+[SurgTV](https://discord.gg/nmDJSm6KVA)
 ```
 <!--
 **Surgiru/Surgiru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
