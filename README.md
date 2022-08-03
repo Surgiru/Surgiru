@@ -11,10 +11,7 @@
 > ***- 📫 How to reach me : [Discord](https://discord.gg/nmDJSm6KVA)***
 
 > ***- 😄 Pronouns He/Him***
-
-> ***- ⚡ Fun fact: I hate love***
 ㅤ
-ㅤ--------------------------------------------
 ㅤ
 > ***[SurgTV](https://discord.gg/nmDJSm6KVA)***
 <!--
