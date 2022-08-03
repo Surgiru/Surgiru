@@ -8,7 +8,7 @@
 
 > ***- 💬 Ask me about fortnite battle pass***
 
-> ***- 📫 How to reach me : https://discord.gg/5MFWHsYdUz***
+> ***- 📫 How to reach me : [Discord](https://discord.gg/nmDJSm6KVA)***
 
 > ***- 😄 Pronouns He/Him***
 
